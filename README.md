@@ -9,3 +9,5 @@
 ● *Minha profissão dos sonhos é Perícia Criminal*🕵‍♀️
 ● *Se a primeira opção não der certo quero estudar Direito*(＾∀＾)
 ● *Gosto de tirar um tempo de autocuidado só para mim*🫧💄
+
+![](https://www.megamensagens.com/upload/2385.gif)
